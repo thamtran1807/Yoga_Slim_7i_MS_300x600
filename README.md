@@ -1,0 +1,2 @@
+# Yoga_Slim_7i_MS_300x600
+Yoga_Slim_7i_MS_300x600
